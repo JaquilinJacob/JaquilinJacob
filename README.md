@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech Hiring
 - 🌱 I’m currently learning Labour, Employment and Industrial Laws for HR Managers
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me jaquilinjacob0112@gmail.com 
+- 📫 How to reach me jaquilinjacob94@gmail.com 
 
 <!---
 JaquilinJacob/JaquilinJacob is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
